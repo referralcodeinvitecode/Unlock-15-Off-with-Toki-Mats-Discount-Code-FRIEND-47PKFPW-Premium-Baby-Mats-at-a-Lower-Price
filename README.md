@@ -1,6 +1,8 @@
-# 🎉 Save 15% Instantly with Toki Mats Discount Code: FRIEND-47PKFPW
+# 🎉 Save 15% Instantly with Toki Mats Discount Code: FRIEND-J6PZ727
 
-If you're shopping for a high-quality, stylish, and safe play mat for your little one, **Toki Mats** should be at the top of your list. These premium baby mats are designed with both aesthetics and practicality in mind — and with discount code **FRIEND-47PKFPW**, you can now **get 15% off your order** instantly!
+If you're shopping for a high-quality, stylish, and safe play mat for your little one, **Toki Mats** should be at the top of your list. These premium baby mats are designed with both aesthetics and practicality in mind — and with discount code **FRIEND-J6PZ727**, you can now **get 15% off your order** instantly!
+
+If the current code expires you can generate a new one accessing this link [generate new discount code](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp)
 
 Whether you're a new parent or shopping for a baby shower gift, this is the perfect chance to grab a Toki Mat at a discounted price.
 
@@ -27,7 +29,7 @@ Don't miss out on this exclusive offer! Apply the code below during checkout to 
 
 | **Discount Code**     | **Benefit**        | **How to Use**                                         |
 |-----------------------|--------------------|--------------------------------------------------------|
-| `FRIEND-47PKFPW`      | 15% Off Your Order | Enter at checkout on [tokimats.com](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp) |
+| `FRIEND-J6PZ727`      | 15% Off Your Order | Enter at checkout on [tokimats.com](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp) |
 
 ✅ Works for both new and returning customers  
 📦 Free shipping on orders over a certain amount (check site for latest deal)
@@ -56,14 +58,14 @@ Here’s what parents are saying:
 
 1. Visit [https://tokimats.com](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp)  
 2. Add your favorite mat to the cart  
-3. At checkout, enter **FRIEND-47PKFPW** in the promo code field  
+3. At checkout, enter **FRIEND-J6PZ727** in the promo code field  
 4. Enjoy **15% off instantly**!
 
 ---
 
 ## 🧠 Final Thoughts
 
-Finding a play mat that balances style, safety, and quality can be hard — but Toki delivers all three. And now, with discount code **FRIEND-47PKFPW**, you can **save 15%** and upgrade your baby’s play space without breaking the bank.
+Finding a play mat that balances style, safety, and quality can be hard — but Toki delivers all three. And now, with discount code **FRIEND-J6PZ727**, you can **save 15%** and upgrade your baby’s play space without breaking the bank.
 
 This deal won’t last forever. Use the code today and see why so many parents are raving about Toki Mats.
 

@@ -2,7 +2,7 @@
 
 If you're shopping for a high-quality, stylish, and safe play mat for your little one, **Toki Mats** should be at the top of your list. These premium baby mats are designed with both aesthetics and practicality in mind — and with discount code **FRIEND-J6PZ727**, you can now **get 15% off your order** instantly!
 
-If the current code expires you can generate a new one accessing this link [generate new discount code](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp)
+#### If the current discount code:FRIEND-J6PZ727 expires you can generate a new one accessing this link [generate new discount code](https://tokimats.refr.cc/default/u/rolleer?s=sp&t=cp) ####
 
 Whether you're a new parent or shopping for a baby shower gift, this is the perfect chance to grab a Toki Mat at a discounted price.
 
